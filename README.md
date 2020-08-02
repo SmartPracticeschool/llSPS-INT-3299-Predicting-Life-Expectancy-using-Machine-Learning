@@ -15,5 +15,7 @@ Google Drive Link for Demonstration videos:
 https://drive.google.com/drive/folders/1d_9JmhM0KNxeg8NqGRO91FuPG_DWET-E?usp=sharing
 
 e-mail id: chnikhilkumar0906@gmail.com
+
 Mobile Number: +91 83099 67932, +91 96185 28283
+
 Linkedin id: https://www.linkedin.com/in/nikhil-0906/
